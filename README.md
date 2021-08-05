@@ -14,4 +14,4 @@ Hi There! 👋
 
 😄 Pronouns: He/Him/His
 
-⚡ Fun fact: I used to want to be a professional iOS developer.
+⚡ Fun fact: I used to want to be a professional football player.
